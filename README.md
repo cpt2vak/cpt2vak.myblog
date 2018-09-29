@@ -1,0 +1,1 @@
+# cpt2vak.myblog
